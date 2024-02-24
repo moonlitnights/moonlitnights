@@ -8,7 +8,7 @@
   
 ---
 
-[main rentry](https://rentry.co/jokerboing) 
+[main rentry](https://rentry.co/vik) 
 
 [guest book !! leave a message !!](https://akiren.123guestbook.com/)
 
