@@ -2,7 +2,7 @@
 
 ### <p align="center"> <img src= "https://pixels.crd.co/assets/images/gallery24/86be4139.gif?v=1987e5e0" width=40 height=40> " It's *full* moon __again__, crazy how time flies .. " <img src= "https://pixels.crd.co/assets/images/gallery24/86be4139.gif?v=1987e5e0" width=40 height=40>
 
-<p align="center"> <img src="https://64.media.tumblr.com/fd1003a3bb131fcb2f7c10f1b398e93e/6b009c87e3e26db7-f4/s1280x1920/c985189ad7e739c6da19dad393db3361a9887036.gifv"<width="500" height="300">
+<p align="center"> <img src="https://64.media.tumblr.com/0899ec2973f468a2eeea464e8c934c99/aa189eb42d282138-17/s1280x1920/a054e459340c03bb1551c90b03e0653b06735022.pnj"<width="500" height="300">
   
 <h3 p align="center"> hello! i am unsure on what to put here. however, i love to interact with others! usually, i'm tabbed out, so, whisper to interact and then i'll see it !!
   
